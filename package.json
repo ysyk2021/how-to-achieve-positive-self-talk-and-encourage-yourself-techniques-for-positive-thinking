@@ -1,0 +1,15 @@
+{
+    "name": "how-to-achieve-positive-self-talk-and-encourage-yourself-techniques-for-positive-thinking-and-self-encouragement",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
