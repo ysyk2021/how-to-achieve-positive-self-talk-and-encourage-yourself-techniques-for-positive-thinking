@@ -1,5 +1,3 @@
-Strategies for Incorporating Affirmations and Gratitude into Daily Life
-========================================================================================================================
 
 Developing positive self-talk habits is essential for promoting a more positive outlook on life. In this chapter, we will explore strategies for incorporating affirmations and gratitude into daily life.
 

@@ -1,5 +1,3 @@
-Strategies for Overcoming Imposter Syndrome and Navigating Difficult Situations
-============================================================================================================================================
 
 Self-doubt and imposter syndrome can be significant barriers to achieving positive self-talk and self-encouragement. In this chapter, we will explore strategies for overcoming imposter syndrome and navigating difficult situations.
 

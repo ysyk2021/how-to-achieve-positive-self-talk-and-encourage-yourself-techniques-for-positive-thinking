@@ -1,5 +1,3 @@
-Chapter 8: Incorporating Mindfulness and Self-care
-==================================================
 
 Incorporating mindfulness and self-care into daily life can help promote positive self-talk and encourage a more positive outlook on life. In this chapter, we will explore techniques and strategies for incorporating mindfulness and self-care into daily life.
 

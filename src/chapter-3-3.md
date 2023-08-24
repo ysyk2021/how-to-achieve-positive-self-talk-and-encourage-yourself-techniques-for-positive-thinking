@@ -1,5 +1,3 @@
-The Benefits of Developing Positive Self-Talk Habits in Encouraging Self-compassion and Resilience
-===================================================================================================================================================
 
 Developing positive self-talk habits is essential for promoting a more positive outlook on life and encouraging self-compassion and resilience. In this chapter, we will explore the benefits of developing positive self-talk habits.
 

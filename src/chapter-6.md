@@ -1,5 +1,3 @@
-Chapter 6: Healing from Past Trauma
-===================================
 
 Past trauma can have a profound impact on our self-talk and mental health. In this chapter, we will explore techniques for healing from past trauma, managing self-blame, building resilience, and promoting emotional regulation and growth.
 

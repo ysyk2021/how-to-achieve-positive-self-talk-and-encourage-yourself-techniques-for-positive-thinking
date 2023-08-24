@@ -1,5 +1,3 @@
-Techniques for Setting and Pursuing Realistic Goals
-==================================================================================================
 
 Setting and pursuing realistic goals is essential for encouraging yourself towards personal growth and achievement. In this chapter, we will explore techniques for setting and pursuing realistic goals.
 

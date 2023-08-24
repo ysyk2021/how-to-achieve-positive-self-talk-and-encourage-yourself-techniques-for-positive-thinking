@@ -1,5 +1,3 @@
-Strategies for Prioritizing Mental and Emotional Health
-===========================================================================================================
 
 In this chapter, we'll discuss the importance of mindfulness and self-care in achieving positive self-talk and self-encouragement. We'll explore strategies for incorporating mindfulness and self-care into daily life, and offer tips for prioritizing mental and emotional health.
 

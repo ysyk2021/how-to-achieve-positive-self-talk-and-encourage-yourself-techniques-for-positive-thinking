@@ -1,5 +1,3 @@
-Chapter 2: Identifying Negative Self-Talk Patterns
-==================================================
 
 Identifying negative self-talk patterns is the first step in promoting a more positive outlook on life. In this chapter, we will explore techniques for recognizing and analyzing negative self-talk, strategies for challenging and reframing negative thoughts, and the benefits of identifying negative self-talk patterns in encouraging positive change.
 

@@ -1,5 +1,3 @@
-Strategies for Embracing Individuality and Uniqueness
-==================================================================================================
 
 Embracing our individuality and uniqueness is an important aspect of building a supportive self-image. In this chapter, we will explore strategies for embracing our individuality and uniqueness.
 

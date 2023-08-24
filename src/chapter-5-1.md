@@ -1,5 +1,3 @@
-Techniques for Building a Positive Self-image and Confidence
-=========================================================================================================
 
 Building a positive self-image and confidence is essential for promoting positive self-talk and self-encouragement. In this chapter, we will explore techniques for building a positive self-image and confidence.
 

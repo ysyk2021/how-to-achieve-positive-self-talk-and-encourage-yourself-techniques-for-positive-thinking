@@ -1,5 +1,3 @@
-Techniques for Managing Self-doubt and Fear of Failure
-===================================================================================================================
 
 Self-doubt and fear of failure can be significant obstacles in achieving our goals. In this chapter, we will discuss techniques for managing self-doubt and fear of failure.
 

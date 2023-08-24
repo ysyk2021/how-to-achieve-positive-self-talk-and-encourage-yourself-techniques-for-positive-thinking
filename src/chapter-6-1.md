@@ -1,5 +1,3 @@
-Techniques for Healing from Past Trauma and Managing Self-blame
-====================================================================================================
 
 Past trauma can have a profound impact on our mental health and self-talk, leading to feelings of shame, guilt, and self-blame. In this chapter, we will explore techniques for healing from past trauma and managing self-blame.
 

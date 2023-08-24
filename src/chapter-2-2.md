@@ -1,5 +1,3 @@
-Strategies for Challenging and Reframing Negative Thoughts
-==============================================================================================================
 
 Identifying negative self-talk patterns is the first step in promoting a more positive outlook on life. In this chapter, we will explore strategies for challenging and reframing negative thoughts.
 

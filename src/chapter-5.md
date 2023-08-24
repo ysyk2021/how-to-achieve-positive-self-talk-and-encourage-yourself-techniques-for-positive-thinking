@@ -1,5 +1,3 @@
-Chapter 5: Building a Supportive Self-image
-===========================================
 
 In this chapter, we'll explore the importance of building a supportive self-image in fostering self-acceptance and authenticity. We'll discuss how negative self-talk can erode our self-image, and offer techniques and strategies for creating a positive and supportive self-image.
 

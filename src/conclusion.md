@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we've explored techniques and strategies for achieving positive self-talk and encouraging ourselves towards positive thinking and self-encouragement. We've discussed the important role of self-talk in our self-esteem and overall mental health, and offered practical tips for developing a more positive and supportive internal dialogue.
 

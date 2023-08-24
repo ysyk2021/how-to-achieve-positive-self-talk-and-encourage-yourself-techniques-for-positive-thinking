@@ -1,5 +1,3 @@
-The Benefits of Healing from Past Trauma in Encouraging Emotional Regulation and Growth
-============================================================================================================================
 
 Healing from past trauma is a difficult but crucial process for promoting emotional regulation and personal growth. In this chapter, we will explore the benefits of healing from past trauma in encouraging emotional regulation and growth.
 

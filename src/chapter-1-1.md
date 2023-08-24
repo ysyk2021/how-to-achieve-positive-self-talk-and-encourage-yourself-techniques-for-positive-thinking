@@ -1,5 +1,3 @@
-Defining Positive Self-Talk and Its Benefits for Mental Health and Well-being
-======================================================================================================
 
 Positive self-talk is a technique for promoting mental health and well-being through intentional, positive inner dialogue. In this chapter, we will define positive self-talk and explore its benefits for mental health and well-being.
 

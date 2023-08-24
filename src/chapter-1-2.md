@@ -1,5 +1,3 @@
-Understanding the Connection between Self-talk and Self-esteem
-=======================================================================================
 
 In this chapter, we'll explore the link between self-talk and self-esteem. We'll define what self-talk is and how it affects our self-esteem, and discuss the importance of positive thinking and self-encouragement.
 

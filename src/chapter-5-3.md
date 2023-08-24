@@ -1,5 +1,3 @@
-The Benefits of Building a Supportive Self-Image in Encouraging Self-Acceptance and Authenticity
-=============================================================================================================================================
 
 In this chapter, we'll explore the importance of building a supportive self-image in fostering self-acceptance and authenticity. We'll discuss how negative self-talk can erode our self-image, and offer techniques for creating a positive and supportive self-image.
 

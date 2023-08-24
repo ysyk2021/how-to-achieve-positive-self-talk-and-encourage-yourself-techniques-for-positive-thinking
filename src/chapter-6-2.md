@@ -1,5 +1,3 @@
-Strategies for Building Resilience and Coping Mechanisms
-=============================================================================================
 
 Healing from past trauma can be a challenging process, but it is crucial for promoting emotional regulation and personal growth. In this chapter, we will explore strategies for building resilience and coping mechanisms as part of the healing process.
 

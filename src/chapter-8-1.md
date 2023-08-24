@@ -1,5 +1,3 @@
-Techniques for Incorporating Mindfulness and Self-care into Daily Life
-==========================================================================================================================
 
 Incorporating mindfulness and self-care into daily life can help promote positive self-talk and encourage a more positive outlook on life. In this chapter, we will explore techniques for incorporating mindfulness and self-care into daily life.
 

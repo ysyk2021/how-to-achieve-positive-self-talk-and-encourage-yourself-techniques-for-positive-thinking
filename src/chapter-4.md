@@ -1,5 +1,3 @@
-Chapter 4: Encouraging Yourself Towards Goals
-=============================================
 
 Encouraging yourself towards goals is essential for personal growth and achievement. In this chapter, we will explore techniques and strategies for setting and pursuing realistic goals, motivating yourself, and encouraging persistence.
 

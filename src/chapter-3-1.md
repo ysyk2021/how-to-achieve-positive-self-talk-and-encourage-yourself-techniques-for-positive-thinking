@@ -1,5 +1,3 @@
-Techniques for Cultivating Positive Self-talk Habits
-=====================================================================================================
 
 Developing positive self-talk habits is essential for promoting a more positive outlook on life and encouraging self-encouragement. In this chapter, we will explore techniques for cultivating positive self-talk habits.
 

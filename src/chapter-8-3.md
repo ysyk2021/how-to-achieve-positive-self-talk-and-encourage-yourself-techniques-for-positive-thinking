@@ -1,5 +1,3 @@
-The Benefits of Incorporating Mindfulness and Self-care in Encouraging Relaxation and Enjoyment
-===================================================================================================================================================
 
 Incorporating mindfulness and self-care into our daily routines can have a significant impact on our well-being. In this chapter, we will explore the benefits of mindfulness and self-care and share techniques for incorporating them into our lives.
 

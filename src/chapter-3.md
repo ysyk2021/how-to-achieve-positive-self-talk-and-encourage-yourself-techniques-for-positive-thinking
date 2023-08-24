@@ -1,5 +1,3 @@
-Chapter 3: Developing Positive Self-Talk Habits
-===============================================
 
 Developing positive self-talk habits is essential for promoting a more positive outlook on life and encouraging self-encouragement. In this chapter, we will explore techniques and strategies for cultivating positive self-talk habits, incorporating affirmations and gratitude into daily life, and the benefits of developing positive self-talk habits in encouraging self-compassion and resilience.
 

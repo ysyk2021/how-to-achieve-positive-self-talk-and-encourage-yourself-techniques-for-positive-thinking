@@ -1,5 +1,3 @@
-Strategies for Motivating Yourself and Encouraging Persistence
-=============================================================================================================
 
 Encouraging yourself towards goals is essential for personal growth and achievement. In this chapter, we will explore strategies for motivating yourself and encouraging persistence towards your goals.
 

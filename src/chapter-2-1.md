@@ -1,5 +1,3 @@
-Techniques for Recognizing and Analyzing Negative Self-Talk
-===============================================================================================================
 
 Identifying negative self-talk patterns is the first step in promoting a more positive outlook on life. In this chapter, we will explore techniques for recognizing and analyzing negative self-talk.
 

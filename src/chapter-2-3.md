@@ -1,5 +1,3 @@
-The Benefits of Identifying Negative Self-Talk Patterns in Encouraging Positive Change
-==========================================================================================================================================
 
 Identifying negative self-talk patterns is the first step in promoting a more positive outlook on life. In this chapter, we will explore the benefits of identifying negative self-talk patterns in encouraging positive change.
 
