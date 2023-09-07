@@ -10,3 +10,7 @@ Each chapter includes practical exercises and examples that are designed to supp
 By adopting the techniques and tools outlined in this book, readers can learn to control their thoughts and emotions, build greater self-confidence, and improve their overall quality of life. We hope that this book will be a valuable resource for all those who wish to achieve positive self-talk, encourage themselves, and discover the power of a more positive mindset.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

@@ -33,3 +33,4 @@
   - [The Benefits of Incorporating Mindfulness and Self-care in Encouraging Relaxation and Enjoyment](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
