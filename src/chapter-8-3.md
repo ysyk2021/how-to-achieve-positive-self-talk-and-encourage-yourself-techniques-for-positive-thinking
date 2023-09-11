@@ -1,5 +1,4 @@
-Chapter: The Benefits of Incorporating Mindfulness and Self-Care in Encouraging Relaxation and Enjoyment
-========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our hectic and demanding lives, finding moments of relaxation and enjoyment is essential for maintaining a positive mindset and promoting overall well-being. This chapter delves into the benefits of incorporating mindfulness and self-care practices as powerful tools for encouraging relaxation and enjoyment in our daily lives.
 

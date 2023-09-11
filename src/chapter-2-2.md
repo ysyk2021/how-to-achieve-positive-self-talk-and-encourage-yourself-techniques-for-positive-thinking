@@ -1,5 +1,4 @@
-Chapter: Strategies for Challenging and Reframing Negative Thoughts
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Challenging and reframing negative thoughts is a critical component of achieving positive self-talk and self-encouragement. In this chapter, we will discuss various strategies that can help you identify and challenge negative thoughts, replace them with positive ones, and cultivate a more optimistic and empowering mindset.
 

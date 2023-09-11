@@ -1,5 +1,4 @@
-Chapter: Techniques for Recognizing and Analyzing Negative Self-Talk
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Negative self-talk is a major obstacle to achieving positive self-talk and self-encouragement. In this chapter, we will discuss various techniques that can help you recognize and analyze negative self-talk, so you can replace it with positive, affirming thoughts.
 

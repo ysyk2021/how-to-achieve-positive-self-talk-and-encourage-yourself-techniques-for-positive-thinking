@@ -1,5 +1,4 @@
-Chapter: The Benefits of Encouraging Yourself towards Goals in Encouraging Personal Growth and Achievement
-==========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Encouraging ourselves towards our goals is a powerful tool for fostering personal growth and achieving success. When we engage in positive self-talk and self-encouragement techniques, we create a supportive and empowering mindset that propels us towards our desired outcomes. In this chapter, we will explore the various benefits of encouraging ourselves towards our goals and how it contributes to personal growth and achievement.
 

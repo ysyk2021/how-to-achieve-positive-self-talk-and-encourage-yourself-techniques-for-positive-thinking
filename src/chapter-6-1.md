@@ -1,5 +1,4 @@
-Chapter: Techniques for Healing from Past Trauma and Managing Self-Blame
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Healing from past trauma is a complex and deeply personal journey. Many individuals who have experienced trauma often struggle with feelings of self-blame, which can hinder the healing process. In this chapter, we will explore techniques for healing from past trauma and managing self-blame, enabling individuals to foster positive self-talk and embrace self-encouragement.
 

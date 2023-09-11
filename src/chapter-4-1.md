@@ -1,5 +1,4 @@
-Chapter: Techniques for Setting and Pursuing Realistic Goals
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting and pursuing realistic goals is a crucial aspect of achieving positive self-talk and self-encouragement. Realistic goals provide a clear direction, motivate personal growth, and instill a sense of accomplishment. In this chapter, we will explore various techniques for setting and pursuing realistic goals to foster positive thinking and self-encouragement.
 

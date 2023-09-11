@@ -1,5 +1,4 @@
-Chapter: Strategies for Incorporating Affirmations and Gratitude into Daily Life
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Incorporating affirmations and gratitude into daily life is a powerful way to cultivate positive self-talk habits and encourage self-encouragement. In this chapter, we will explore strategies for integrating affirmations and gratitude practices into your daily routine to promote self-love, positivity, and resilience.
 

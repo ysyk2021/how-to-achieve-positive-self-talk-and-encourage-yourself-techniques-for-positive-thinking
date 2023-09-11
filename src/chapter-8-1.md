@@ -1,5 +1,4 @@
-Chapter: Techniques for Incorporating Mindfulness and Self-Care into Daily Life
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our fast-paced and often stressful world, it is crucial to prioritize mindfulness and self-care to enhance our well-being and cultivate positive self-talk. This chapter explores practical techniques for integrating mindfulness and self-care into our daily lives, empowering us to embrace positivity, foster self-encouragement, and promote a more fulfilling mindset.
 

@@ -1,5 +1,4 @@
-Chapter: Strategies for Motivating Yourself and Encouraging Persistence
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Motivation and persistence are essential factors in achieving positive self-talk and self-encouragement. In this chapter, we will explore various strategies that can effectively motivate you and encourage persistence as you strive for positive thinking and self-encouragement.
 

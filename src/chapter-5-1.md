@@ -1,5 +1,4 @@
-Chapter: Techniques for Building a Positive Self-Image and Confidence
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a positive self-image and confidence is crucial for maintaining positive self-talk and self-encouragement. In this chapter, we will explore a range of techniques that can help you develop a healthy self-perception, boost your confidence, and cultivate a positive mindset towards yourself.
 

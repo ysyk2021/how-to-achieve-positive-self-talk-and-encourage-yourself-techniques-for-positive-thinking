@@ -1,5 +1,4 @@
-Chapter: Strategies for Prioritizing Mental and Emotional Health
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's fast-paced and demanding world, prioritizing mental and emotional health is crucial for overall well-being and personal growth. This chapter explores effective strategies that can help you prioritize your mental and emotional health, enabling you to lead a more balanced and fulfilling life.
 

@@ -1,5 +1,4 @@
-Chapter: Techniques for Cultivating Positive Self-Talk Habits
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Cultivating positive self-talk habits is an essential step towards achieving positive thinking and self-encouragement. In this chapter, we will explore effective techniques that can help you develop and strengthen positive self-talk habits, empowering you to navigate life's challenges with resilience and optimism.
 

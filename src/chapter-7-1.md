@@ -1,5 +1,4 @@
-Chapter: Techniques for Managing Self-Doubt and Fear of Failure
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-doubt and fear of failure are common obstacles that can hinder your progress towards achieving positive self-talk and self-encouragement. In this chapter, we will explore various techniques that can help you manage self-doubt and fear of failure, empowering you to overcome these obstacles and achieve your goals.
 
